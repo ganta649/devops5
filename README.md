@@ -18,3 +18,7 @@ lklklf'
 mnNDLKDL;
 SADKJSAMD;
 SND,MSA
+n .,m,
+ ,m,?
+ n ,mm,mm
+ m.,m.
